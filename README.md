@@ -36,4 +36,4 @@ As a Rwandan woman passionate about technology, I build impactful digital soluti
  =📫 Get in Touch
 - ✉️ Email: anne123laure321@gmail.com / annelaure472@gmail.com  
 - 💼 LinkedIn: [https://www.linkedin.com/in/anne-laure-265962338/](https://www.linkedin.com/in/anne-laure-265962338/)  
-- 🐦 Twitter: [Your Twitter Handle, optional]  
+- 🐦 Twitter: (https://x.com/AnneLau97776836)  
